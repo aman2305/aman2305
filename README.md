@@ -1,4 +1,4 @@
-# 👋 Hi there! I'm Aman Singh
+# 👋 Hi there! I'm Aman lakhera
 
 ### 🌱 About Me
 - 🌍 I'm based in India.
